@@ -1,1 +1,0 @@
-# NEXT_academy_exercise
